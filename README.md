@@ -1,0 +1,1 @@
+# school-managment.github.io
